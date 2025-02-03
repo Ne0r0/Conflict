@@ -1,3 +1,0 @@
-Labas
-Rimas
-Elektra
